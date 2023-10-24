@@ -8,4 +8,4 @@ bad influence only affects weak mind🧭
 
 ADMINISTRAÇÃO❤️‍🩹
 
-@edy_flury🍓
+@macedoh_edy
